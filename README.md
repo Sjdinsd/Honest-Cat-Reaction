@@ -6,3 +6,7 @@ DOWNLOAD FROM REALEASES PLEASE(old version possible if downlaoded from code butt
 
 Discord incase anyones wants to contact, commision, or anything else :
 Sjdinsd#9755
+
+
+COMMING SOON: 
+1: custom gifs, add your custom gif with the templete provided YEYEYEEYEYEAHAYYAHE
